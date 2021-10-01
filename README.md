@@ -1,4 +1,8 @@
 dydxpython刷交易量DEMO
+欢迎联系QQ3572412041
+telegram账号@btcok9
+微信 dnf767
+<br><br><br><br>
 <p align="center"><img src="https://s3.amazonaws.com/dydx-assets/dydx_logo_black.svg" width="256" /></p>
 
 <div align="center">
